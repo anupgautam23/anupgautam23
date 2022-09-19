@@ -12,7 +12,7 @@
 - 💬 Ask me about **java,MySQL**
 
 - 📫 How to reach me **anupgautam97@gmail.com**
-https://drive.google.com/file/d/1HHSR_pqGdqK9oVrsJYqCIUYI73SH5psI/view?usp=sharing
+
 - 📄 Know about my experiences [https://drive.google.com/drive/folders/1E2S_fXewfuYYXUZsYtLTC12pO5PSRWwN](https://drive.google.com/file/d/1HHSR_pqGdqK9oVrsJYqCIUYI73SH5psI/view?usp=sharing)
 
 - ⚡ Fun fact **I think i am lucky**
